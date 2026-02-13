@@ -1,7 +1,7 @@
-## 88影视网 · 最新网址（2026.01.12 最后更新）
+## 88影视网 · 最新网址（2026.02.13 最后更新）
 > 最新：[https://www.88mv.me](https://www.88mv.me?ref=github)
 >
-> 备份：[https://www.88hd.org](https://www.88hd.org?ref=github)
+> 备份：[https://www.88hd.me](https://www.88hd.me?ref=github)
 > 
 > 如果浏览器输入网址，请手动添加 `https` 而非 `http`
 
