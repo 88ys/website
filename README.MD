@@ -1,5 +1,5 @@
-## 88影视网 · 最新网址（2026.05.25 最后更新）
-> 最新：[https://www.88ystv.com](https://www.88ystv.com?ref=github)
+## 88影视网 · 最新网址（2026.11.01 最后更新）
+> 最新：[https://www.88ystv.cc](https://www.88ystv.cc?ref=github)
 > 
 > 如果浏览器输入网址，请手动添加 `https` 而非 `http`
 
